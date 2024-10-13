@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... smartkelvin022@gmail.com
+- 0745879967
 - 😄 Pronouns: ...he
 - ⚡ Fun fact: ... get to know me first
 
