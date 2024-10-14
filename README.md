@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...knowing more
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... smartkelvin022@gmail.com
+- 📫 How to reach me ... otienokelvin178@gmail.com
 https://wa.me/+254745879967
 - 😄 Pronouns: ...he
 - ⚡ Fun fact: ... get to know me first
